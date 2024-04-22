@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Fayiz120
 - 👀 I’m interested in Solving new problems and learning new things
-- 🌱 I’m currently learning Software develpment
+- 🌱 I’m currently working at Autobonics pvt ltd.
 - 💞️ I’m looking to collaborate on anything 
 - 📫 How to reach me Whatsapp 8606026387
 <!---
